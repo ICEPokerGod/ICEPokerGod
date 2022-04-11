@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ICEPokerGod
+- 👀 I’m interested in ...depraved degens 
+- 🌱 I’m currently learning ...how to intergrate degenerate games to the degen den
+- 💞️ I’m looking to collaborate on ...degenerate projects
+- 📫 How to reach me ...@p2epoker on twitter
